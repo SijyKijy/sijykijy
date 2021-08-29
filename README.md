@@ -1,6 +1,6 @@
 <pre>
  .              +   .                .   . .     .  .
-       ˚.　 　✦　.　　　　*　　˚ 　              .       
+       ˚.　 　<a href="https://telq.org/" rel="nofollow">✦</a>　.　　　　*　　˚ 　              .       
   .       *                     
 .       ˚.　 　<a href="https://0x00sec.org/" rel="nofollow">✦</a>　.　　　　*　　˚ 　        .  .   .    .
                               .     .     . +.    +  .
