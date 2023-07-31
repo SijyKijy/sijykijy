@@ -7,7 +7,7 @@
     ˚.　 　<a href="https://techgaun.github.io/active-forks/" rel="nofollow">✦</a>　.　　　　<a href="https://www.decisionproblem.com/paperclips/" rel="nofollow">*</a>　　˚ 　　　             .   . .
         . .                  .    * . . .  .  +   .
            +      .           .   .      +
-       ˚.　 　<a href="https://candybox2.github.io" rel="nofollow">✦</a>　.　　　　*　　˚ 　　　.　　        +  .+
+       ˚.　 　<a href="https://candybox2.github.io" rel="nofollow">✦</a>　.　　　　<a href="https://thirtydollar.website/" rel="nofollow">*</a>　　˚ 　　　.　　        +  .+
   .                      .     . + .  . .     .      .
            .      .    .     . .   . . .        ! /
       *             .    . .   <a href="https://www.windows93.net/" rel="nofollow">+</a>    .  .      - <a href="https://tr-8r.com/" rel="nofollow">O</a> -
