@@ -3,7 +3,7 @@
        ˚.　 　<a href="https://telq.org/" rel="nofollow">✦</a>　.　　　　*　　˚ 　              .       
   .       *                     
 .       ˚.　 　<a href="https://0x00sec.org/" rel="nofollow">✦</a>　.　　　　*　　˚ 　        .  .   .    .
-                              .     .     . +.    +  .
+                              .     .     . +.    <a href="https://photomosh.com/" rel="nofollow">+</a>  .
     ˚.　 　<a href="https://techgaun.github.io/active-forks/" rel="nofollow">✦</a>　.　　　　<a href="https://www.decisionproblem.com/paperclips/" rel="nofollow">*</a>　　˚ 　　　             .   . .
         . .                  .    * . . .  .  +   .
            +      .           .   .      +
