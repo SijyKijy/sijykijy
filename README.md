@@ -1,5 +1,5 @@
 <pre>
- .              +   .                .   . .     .  .
+ .              <a href="https://noc2pa.com/" rel="nofollow">+</a>   .                .   . .     .  .
        ˚.　 　<a href="https://telq.org/" rel="nofollow">✦</a>　.　　　　*　　˚ 　              .       
   .       *                     
 .       ˚.　 　<a href="https://0x00sec.org/" rel="nofollow">✦</a>　.　　　　*　　˚ 　        .  .   .    .
